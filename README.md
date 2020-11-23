@@ -1,0 +1,2 @@
+# CaloriesCalculator_HomeWork2
+HOMEWORK 2 - VAHİT KUTLUHAN ÖZBAKAN - 17244710056
